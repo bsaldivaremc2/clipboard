@@ -1,3 +1,9 @@
 # clipboard  
 Yes  
-https://docs.google.com/presentation/d/1D1p7bb83AXN_nj0vzNMAa65W3mRNNtRhvTFxxEOsGrI/edit#slide=id.g2c0e7cd85fc_0_18
+Previous:  
+https://docs.google.com/presentation/d/1SjfIhjHgWjdF-mIG9LzeDWyFU_wAcsvKIyhEkEbWYpS/edit?usp=sharing  
+
+Current:  
+https://docs.google.com/presentation/d/1elT939SLcD_MG5_BOEsaL8YQUTSSuRyrqo-nwM4jjIO/edit?usp=sharing  
+
+
